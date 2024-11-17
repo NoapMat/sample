@@ -2,4 +2,4 @@
 sample
 
 sample edit
-maganda na to
+panget neto
